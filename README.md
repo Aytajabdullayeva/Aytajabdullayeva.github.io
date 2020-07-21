@@ -1,2 +1,2 @@
 # Aytajabdullayeva.github.io
-Project by AA
+Projects by AA
